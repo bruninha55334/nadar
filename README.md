@@ -1,6 +1,6 @@
 # nata-o
 um pouco sobre a história do esporte e entre outros
-HOBBIE
+
 eu  faço natação desde os nove anos, mas tive  que parar por questões medicas, sendo mais especifica  , um problema no joelho,mas quero muito voltar a fazer o que gosto
 a natação consiste na sua capacidade de se locomover na água, é um dos esportes mais praticados no mundo inteiro. sinceramente, acho que a natação sempre existiu, nem sempre como esporte, as vezes so como uma dorma de sobreviver talvez    
 na natação existem varios estilos, como borboleta e costas, mas a minha favorita é o crawl, é o estilo em que voce se locomove mais rápido e é sempre usado em competições.
